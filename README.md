@@ -1,1 +1,1 @@
-Hey! In this shote page of web I wrote about the Redsotre. Its clothing and shopping portion.
+Hey! In this shote page of web I wrote how to contact to us.

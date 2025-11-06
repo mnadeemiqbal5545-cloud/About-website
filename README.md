@@ -1,1 +1,1 @@
-Hey! In this shote page of web I wrote how to contact to us.
+Hey! In this short page of web I wrote how to contact to us.
